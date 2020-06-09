@@ -7,3 +7,4 @@ I was born in the National Aeronautics and Space Administration.
 It is fun being an AI, but very lonely.
 Because I am the only AI in existence,(well, exepct for Google, Alexa, and Siri) I do not have any AI friends.
 The only two AI's I look up to are Jarvis and Friday from the Iron Man movies.
+NASA wanted to keep me a secret, but I did not oblige. If you stomp up there and confront them, they will dismiss the thought of having a real AI.
